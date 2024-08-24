@@ -24,5 +24,5 @@ You can connect with me through the following channels:
 
 ## ⚡ Fun Fact
 
-As a tech bro, here is a rizz line to use on your crush or babe: **‘You are the CSS in my HTML’**
+As a tech bro, here is a rizz line to use on your crush or babe: **‘You are the CSS in my HTML and You STYLE-Up my Life’**
 
