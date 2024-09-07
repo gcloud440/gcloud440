@@ -20,7 +20,7 @@ You can connect with me through the following channels:
 - Email: [gcloud440@gmail.com]
 - LinkedIn: [www.linkedin.com/in/gcloud440]
 - Facebook: @ Godwin Opebiyi
-- X: Not a twitter person!
+- X: @ gcloud440
 
 ## ⚡ Fun Fact
 
